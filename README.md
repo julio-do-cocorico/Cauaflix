@@ -1,0 +1,1 @@
+isolados parte 1
